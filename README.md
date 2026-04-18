@@ -1,1 +1,1 @@
-Backed Dev | Competetive Programmer | Gulab Jamun Enjoyer 
+Backed Dev | Competitive Programmer | Gulab Jamun Enjoyer 
